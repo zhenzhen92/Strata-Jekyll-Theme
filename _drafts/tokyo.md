@@ -1,0 +1,72 @@
+---
+layout: ''
+title: Tokyo
+date: 2019-05-20 16:00:00 +0000
+categories: Travel
+
+---
+![Tokyo 2016](https://zhenzhenislove.files.wordpress.com/2016/10/tokyo-2016.jpg =630x420)
+
+On the way to LA, we had an 11-hour layover in Japan - and of course we made full use of it exploring Tokyo and savouring some yummy food.
+
+![](https://c2.staticflickr.com/6/5598/29966434380_bd73a97d91_b.jpg =768x1024)
+
+![](https://c2.staticflickr.com/8/7546/29966435290_2682289c3a_b_d.jpg =1024x768)
+
+![](https://c2.staticflickr.com/6/5640/30177969471_6540283171_b_d.jpg =1024x768)
+
+![](https://c2.staticflickr.com/6/5736/30228324816_90e2a9f9ea_b_d.jpg =576x1024)
+
+![](https://c1.staticflickr.com/9/8550/29632684414_eb6096be4f_b_d.jpg =576x1024)
+
+![](https://c2.staticflickr.com/6/5803/30177978191_c0e1f3fe6e_b_d.jpg =1024x768)
+
+***
+
+### Sensō-ji / 浅草寺
+
+We reached here at around 8AM, so it wasn't that crowded yet. Coincidentally, the **Sanja Matsuri** was happening on that weekend, hence the many stalls around the shrine. My sister told me about some _famous matcha gelato_ place at Asakusa and we went to check it out, but unfortunately it was closed due to the matsuri :( Here's the name of the shop if you want to check it out: **Nanaya @ Suzukien**
+
+![](https://c1.staticflickr.com/9/8549/30177977601_54d9b7cf94_b_d.jpg =1024x576)
+
+![](https://c2.staticflickr.com/6/5803/30177984691_3b9edf859c_b_d.jpg =1024x576)
+
+###### ![](https://c2.staticflickr.com/6/5682/30177984081_6c2c3a71ab_b_d.jpg =576x1024)Tokyo Skytree from a distance
+
+![](https://c1.staticflickr.com/9/8127/30228327486_884255baa8_b_d.jpg =576x1024)
+
+![](https://c2.staticflickr.com/6/5328/30177989601_0b3a2082c1_b_d.jpg =576x1024)
+
+###### ![](https://c1.staticflickr.com/9/8550/29632644154_2c2501f220_b_d.jpg =1024x576)Crab meat that was so-so
+
+![](https://c1.staticflickr.com/9/8412/30178001141_1d7238ee90_b_d.jpg =1024x576)
+
+![](https://c2.staticflickr.com/6/5663/29632640894_e7e767d273_b_d.jpg =1024x576)
+
+![](https://c2.staticflickr.com/6/5683/30178012171_82d2830cfd_b_d.jpg =683x1024)
+
+![](https://c1.staticflickr.com/9/8127/30263114855_ccaa1dbb1a_b_d.jpg =576x1024)
+
+![](https://c1.staticflickr.com/9/8711/30263114185_5bb4b885fa_b_d.jpg =576x1024)
+
+![](https://c1.staticflickr.com/9/8552/30178007001_85c84c4482_b_d.jpg =576x1024)
+
+![](https://c1.staticflickr.com/9/8664/29632650244_931bb5c0f6_b_d.jpg =576x1024)
+
+***
+
+### Tsukiji Fish Market / 築地市場
+
+The highlight at the fish market for me was actually the **matcha ice-cream** - it was the best one I've ever tasted till date!! The 1000 yen grilled scallop shell with seafood plate was awesome as well.
+
+![](https://c2.staticflickr.com/6/5822/30263115565_52dd57f39b_b_d.jpg =1024x819)
+
+![](https://c1.staticflickr.com/9/8418/30147861942_2ab4458f11_b_d.jpg =1024x1024)
+
+![](https://c2.staticflickr.com/6/5562/30178018391_40a960f3e8_b_d.jpg =1024x768)
+
+![](https://c2.staticflickr.com/6/5500/30147863152_9766a52f00_b_d.jpg =1024x768)
+
+![](https://c1.staticflickr.com/9/8140/30178017171_4ddda9b5e8_b_d.jpg =1024x768)
+
+![](https://c1.staticflickr.com/9/8275/30147862072_5bc61168fb_b_d.jpg =768x1024)
