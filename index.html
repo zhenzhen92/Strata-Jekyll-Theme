@@ -16,6 +16,9 @@ layout: default
     {% endfor %}
   </section>
   <section>
+    {% include advertisements.html %}
+  </section>
+  <section>
     <div class="row">
       {% for post in site.posts offset:1 %}
         <article class="{% cycle '6u', '6u$' %} 12u(small)">
